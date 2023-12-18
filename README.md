@@ -1,5 +1,5 @@
 # Bitcoin-Flash
-# Buy from me : t.me/suportGermany
+# Buy from me : t.me/iehesam
 
 ✅ Flash Android [Flash Bitcoin Tools ]
 
@@ -20,4 +20,4 @@
 🔰and ...
 
 
-For buy pm me : https://t.me/suportGermany
+For buy pm me : https://t.me/iehesam
